@@ -1,1 +1,1 @@
-Welcome to my magig world...BWalker
+Welcome to my magic world...BWalker
